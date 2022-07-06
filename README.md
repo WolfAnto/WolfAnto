@@ -8,11 +8,6 @@
 
 - 🔭 I’m currently working on **Nothing...**
 
-- 🌱 I’m currently studying **BTS SIO**
-
-- 👨‍💻 All of my projects are available at **[My Portfolio](https://antoningrepilloux.fr/)**
-
-- 📫 How to reach me **antonin.grepilloux@gmail.com**
 
 - ⚡ Fun fact **I play games and watching some content on Internet**
 
